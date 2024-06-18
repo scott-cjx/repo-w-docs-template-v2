@@ -1,1 +1,0 @@
-# repo-w-docs-template-v2
